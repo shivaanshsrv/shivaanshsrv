@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m Shivansh Srivastava, a UI/UX designer with over 2 years of experience <br>blending beauty and functionality... but not just to make things “pretty.” <br>I believe that design can bring order to chaos and meaning to the ordinary. 🎩✨<br>
+I’m Shivansh, a UI/UX designer with over 2 years of experience blending beauty and functionality... but not just to make things “pretty.” I believe that design can bring order to chaos and meaning to the ordinary. 🎩✨<br>
 
 
 ## 🌐 Socials:
